@@ -13,7 +13,7 @@ Cómo editar tu perfil
 Y mucho más...
 
 
-**Course Curriculum**
+# **Course Curriculum**
 
 <A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Lección 1: Así funciona la interfaz de LinkedIn </A> <Br> 
 <A HREF="https://www.youtube.com/watch?v=Mw2oYSKTrCg"> Lección 2: Las partes más importantes de tu perfil de LinkedIn </A><Br> 
@@ -31,7 +31,8 @@ Y mucho más...
 <Br> 
 Y aquí comparto el curso completo: **https://cursos2cn.com/courses/como-encontrar-trabajo-en-linkedin/**
 
- Captures de algunas partes interesantes: 
+ 
+ # Captures de algunas partes interesantes: 
  
  
  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 37 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/3ea71c7a-1b51-46af-947c-8b0b99e30664">
