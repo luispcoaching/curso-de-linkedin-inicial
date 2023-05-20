@@ -13,3 +13,21 @@ Cómo editar tu perfil
 Y mucho más...
 
 
+**Course Curriculum**
+
+Así funciona la interfaz de LinkedIn
+04:09 https://www.youtube.com/watch?v=xa_0AkXhLGY
+Las partes más importantes de tu perfil de LinkedIn
+04:17 
+Edita esto si quieres que se interesen en tu perfil
+04:40 
+Cómo añadir estudios y experiencia
+02:15 
+Los perfiles MÁS VISIBLES no hacen esto en LinkedIn
+05:13 
+Qué son las apariciones en búsquedas de tu perfil
+06:07 
+Cómo buscar ofertas de trabajo en LinkedIn
+05:39 
+Cómo postular a ofertas de trabajo en LinkedIn
+06:00 
