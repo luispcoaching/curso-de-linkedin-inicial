@@ -33,18 +33,19 @@ Y aquí comparto el curso completo: **https://cursos2cn.com/courses/como-encontr
 
  Captures de algunas partes interesantes: 
  
-  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 41 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/f76c2055-7fbb-4eda-a4e1-a78d5e0e172f">
-
- <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 49 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/bb97ce89-9140-4f8b-a048-c56752579ec4">
  
  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 37 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/3ea71c7a-1b51-46af-947c-8b0b99e30664">
 
  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 46 51 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/cf1f7d28-e964-470a-a9bc-42a5019d252f">
  
 <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 46 33 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/75d5e4a9-5ead-4ed2-bd32-fb523b775f2b">
+ 
+  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 41 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/f76c2055-7fbb-4eda-a4e1-a78d5e0e172f">
+
 
  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 07 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/35a65e0b-ebd2-4fbd-83f3-eb4f665dba14">
 
- 
+  <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 49 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/bb97ce89-9140-4f8b-a048-c56752579ec4">
+
 
  
