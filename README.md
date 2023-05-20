@@ -49,4 +49,19 @@ Y aquí comparto el curso completo: **https://cursos2cn.com/courses/como-encontr
   <img width="1536" alt="Captura de pantalla 2023-05-20 a la(s) 3 47 49 p m" src="https://github.com/luispcoaching/curso-de-linkedin-inicial/assets/134145984/bb97ce89-9140-4f8b-a048-c56752579ec4">
 
 
+ # Otros recursos de empleabilidad interesantes: 
+ 
+Cómo superar las etapas en un proceso de selección: https://lnkd.in/diZt7be8
+Lo que nadie te dice de cómo encontrar trabajo con éxito: https://lnkd.in/ddjG4SMW
+Tests de personalidad en una entrevista y por qué te pueden descartar: https://lnkd.in/dBXtkp-a
+3 objeciones que tienen las empresas para no contratarte si eres extranjero (y cómo superarlas): https://lnkd.in/dAcb9dMr
+Si alguien ve tu perfil de LinkedIn haz esto: https://lnkd.in/dAjBX7z9
+Qué buscan los reclutadores en la entrevista: https://lnkd.in/dxYzdeQk
+Si eres el candidato perfecto y no te seleccionan, haz esto: https://lnkd.in/dbkjy-xY
+Cómo superar la entrevista con el CEO de la empresa: https://lnkd.in/dsdvdbu9
+Cómo lograr que la gente te refiera en su trabajo: https://lnkd.in/dqeKZry9
+Qué tipo de CURRÍCULUM es el que mejor FUNCIONA: https://lnkd.in/dz7GucJm
+
+ 
+ 
  
