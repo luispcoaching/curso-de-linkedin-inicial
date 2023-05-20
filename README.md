@@ -15,18 +15,18 @@ Y mucho más...
 
 **Course Curriculum**
 
-<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Así funciona la interfaz de LinkedIn </A>04:09 
-Las partes más importantes de tu perfil de LinkedIn
-04:17 
-Edita esto si quieres que se interesen en tu perfil
-04:40 
-Cómo añadir estudios y experiencia
-02:15 
-Los perfiles MÁS VISIBLES no hacen esto en LinkedIn
-05:13 
-Qué son las apariciones en búsquedas de tu perfil
-06:07 
-Cómo buscar ofertas de trabajo en LinkedIn
-05:39 
-Cómo postular a ofertas de trabajo en LinkedIn
-06:00 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Así funciona la interfaz de LinkedIn </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Las partes más importantes de tu perfil de LinkedIn
+04:17 </A>04:09 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Edita esto si quieres que se interesen en tu perfil
+ </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Cómo añadir estudios y experiencia </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Los perfiles MÁS VISIBLES no hacen esto en LinkedIn </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Qué son las apariciones en búsquedas de tu perfil </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Cómo buscar ofertas de trabajo en LinkedIn </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Cómo postular a ofertas de trabajo en LinkedIn </A> 
+
+
+
+
+Y aquí comparto el curso completo: **https://cursos2cn.com/courses/como-encontrar-trabajo-en-linkedin/**
