@@ -15,8 +15,7 @@ Y mucho más...
 
 **Course Curriculum**
 
-Así funciona la interfaz de LinkedIn
-04:09 https://www.youtube.com/watch?v=xa_0AkXhLGY
+<A HREF="[otra_pagina.html](https://www.youtube.com/watch?v=xa_0AkXhLGY)"> Así funciona la interfaz de LinkedIn </A>04:09 
 Las partes más importantes de tu perfil de LinkedIn
 04:17 
 Edita esto si quieres que se interesen en tu perfil
