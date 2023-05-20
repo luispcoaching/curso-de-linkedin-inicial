@@ -15,9 +15,9 @@ Y mucho más...
 
 **Course Curriculum**
 
-<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Así funciona la interfaz de LinkedIn </A> 
+<A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Así funciona la interfaz de LinkedIn </A> <Br> 
 <A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Las partes más importantes de tu perfil de LinkedIn
-04:17 </A>04:09 
+04:17 </A>
 <A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Edita esto si quieres que se interesen en tu perfil
  </A> 
 <A HREF="https://www.youtube.com/watch?v=xa_0AkXhLGY"> Cómo añadir estudios y experiencia </A> 
